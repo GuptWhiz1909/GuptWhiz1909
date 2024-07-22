@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecurity
 - 🌱 I’m currently learning AWS Cloud
 - 💞️ I’m looking to collaborate on Cybersecurity
-- 📫 How to reach me www.linkedin.com/in/raghav-g-0b0179b5
+- 📫 How to reach me Gmail,LinkedIn.
 - 😄 Pronouns:GuptWhiz
 - ⚡ Fun fact: I Love listening music,Playing Video Games.
 
